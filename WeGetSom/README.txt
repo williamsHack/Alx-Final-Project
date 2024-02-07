@@ -1,0 +1,2 @@
+About Us
+At WeGetSom, we take great pride in the exquisite designs and hand-craftsmanship of our products. Embodying a slow way of life that is rooted in taking inspiration from the outdoors, our nature inspired products stand at an intersection between local and global. Our designs blend contemporary sensibilities with age-old tradition of “karigari” that promotes excellence in craftsmanship and quality at every turn.
